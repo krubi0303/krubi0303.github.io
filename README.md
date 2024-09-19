@@ -1,1 +1,1 @@
-# krubi0303.github.io
+# http://krubi0303.github.io
